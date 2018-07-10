@@ -70,3 +70,52 @@ Angry is an emotion, not a behavior. They can always say "I wasn't angry/upset/w
     - Relationships
         - internal and external
         - if you have a bad relationship with customer service people
+
+## Episode Four
+
+***Outcomes**
+
+Steps 2 and 3 are here's what we did, and here's the outcome.
+
+If you don't give feedback, internal processes of the company don't match market model for products.
+
+You did an action, here's the market response.
+
+Lateness impacts projections, revenue, and costs. So occasional lateness doesn't help.
+
+Don't get paid for intent.
+
+THE MODEL
+
+Can I give you feedback?
+When you...
+Here's what happens...
+
+Here's what happens becomes implied over time, but it's good to start with that.
+
+*Faster is better*
+
+Don't need a laundry list of outcomes. Outcome can be, "it really helps me out."
+
+Simple. Direct.
+
+Easiest one is to describe impact on you.  "Worries me". You can describe your attitude in outcomes. 
+
+If feedback is unclear, step three gives positive or negative.
+
+Step 4:
+Reinforce about the future.
+
+*Positive:* say thanks ("keep it up", etc')
+
+*Negative:* ask them to do it differently next time.
+
+**Simple:** Could you change that? Can you? Would you? Will you? 
+
+don't ask open ended question
+
+Asking a question gets their commitmen,  take responsibility, and implied agreement old behavior is ineffective. Simple answer is yes.
+
+If they say no? Big problem,  but super rare. 
+
+Being casual helps them think less about if this is punishment or not. This seems a but phoney when he says it but makes sense.
