@@ -174,7 +174,9 @@ Team reactions may be fearful at first.
 
 
 
+## Our Discussion
 
+9:1 positive to negative ratio is the (exaggerated) goal.
 
 
 
