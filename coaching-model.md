@@ -33,3 +33,9 @@ Managers manage by exception, but they should manage to opportunities. Spend tim
 Highly effective managers aren't looking to minimize time with directs. They demand top performance and reward it.
 
 To improve performance of teams, coaching is the most effective way. 
+
+Coaching has a negative connotation... I don't really have any preconceptions on this so I'm not sure why they're belaboring this.
+
+Need to be clear this is to help develop everyone. 
+
+##  Part 2 
