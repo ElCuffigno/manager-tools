@@ -64,10 +64,42 @@ Less than 8 weeks, could be covered with delegation and feedback.
 
 Something that helps the company and employee.
 
+Put goal on back of one on one forms.
+
 First engagement, maybe try something they want to do, then it's the managers turn.
 
 ### Resources
 
+Jointly brainstorm resources and direct trying them out. 2-3 minutes to come up with list of resources they think might be useful. Long list! Looking for volume not accuracy. 
+
+There are no silver bullets.
+
+Need to explore ways directs can pick up skills needed.
+
+You may start a resource, find it's not useful, and discard. This is by design.
+
+Managers don't have to be best at what they're coaching. That's the benefit of resources.
+
 ### Plan
 
+Collaborate to create a plan.
+
+Create first few weeks of the plan. 
+
+Series of steps direct will take. 2-3 next steps. 
+
+Can be simple as "order book by x date".
+
+Recommend making them small.
+
+Include reporting of the activity in the task. Report to me by...
+
 ### Act and Report
+
+Direct acts on planned steps and reports. (No work for you).
+
+You are not the trainer. You're the coach. 
+
+As they achieve steps, give more feedback, iterate on resources.
+
+If you miss the goal date, OK to move back as long as progress being made. 90% better is still better. 
