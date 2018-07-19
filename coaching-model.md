@@ -39,3 +39,35 @@ Coaching has a negative connotation... I don't really have any preconceptions on
 Need to be clear this is to help develop everyone. 
 
 ##  Part 2 
+
+Coaching most effective when collaborative.
+
+Each have half the map, what the company wants and what the employee wants.
+
+Keep it relaxed. Natural and comfortable.
+
+### Goal
+
+Sit down with direct and set a goal.
+
+Describe behavior or task we want to achieve, then set a goal date.
+
+"You will submit the capital plan without errors by 1 January."
+
+Measurable and Time limited. (MT)
+
+This is oversimplification but eliminates some overhead. Remove issue of quality. Can tighten up quality as you go.
+
+Should be something that can be demonstrated. Have to do the goal, not just learn about it. Don't confuse with action steps.
+
+Less than 8 weeks, could be covered with delegation and feedback.
+
+Something that helps the company and employee.
+
+First engagement, maybe try something they want to do, then it's the managers turn.
+
+### Resources
+
+### Plan
+
+### Act and Report
