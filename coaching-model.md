@@ -103,3 +103,20 @@ You are not the trainer. You're the coach.
 As they achieve steps, give more feedback, iterate on resources.
 
 If you miss the goal date, OK to move back as long as progress being made. 90% better is still better. 
+
+## Discussion Notes
+
+Top performer more relevant than I thought on my listen. Should be evaluating directs strengths and know who's top performing in what.
+
+But, consider who you spend the most time on. 
+
+Quantifying and setting deadlines for steps in plan is essential. Use DBQ:
+- Deadline
+- Behavior
+- Quality 
+
+Above measures success.
+
+RP takes notes continuously. He keeps them private, but tracks feedback, performance. Helps a ton with EOY reviews. 
+
+Manager and Direct should identify where and how the direct wants to go. 
