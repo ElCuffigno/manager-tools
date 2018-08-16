@@ -69,5 +69,6 @@ Delegation best achieved through relationship power. In principle, best way to d
   - they say yes or no, but asking first is better. (80% say yes).
   - giving full details causes people to listen defensively. 
   - they said yes, listening actively.
+  - if no, ask about their concerns. Affirm. Then see if you can resolve them. But if you get a true no, you're not pushing it. Q
 
 
