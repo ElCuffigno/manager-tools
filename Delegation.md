@@ -43,3 +43,31 @@ Delegation solutions
 If you fail to delegate, you're stopping the organization from growing. 
 
 Good orgs are constantly growing and growth is stress.
+
+## Part 2 - How to Delegate
+
+If you don't learn how to delegate as a manger, you will fail as an executive. Need to develop partnership skills and relationships.
+
+Easy, but counterintuitive. 
+
+Not all work from you is delegating. Most is assigning work (other podcasts about that). Assigning uses role power, but delegation is not the same. 
+
+Delegation best achieved through relationship power. In principle, best way to do it is to ask direct to take over. Never ask a question whose answer you don't intend to honor. If they say no, we're going to walk away. 
+
+### Steps
+1. State your desire for help from your directs. 
+  - Bob I'd like your help.(not a favor)
+  - if your boss came and asked in a polite way, would you be open to it?
+2. Tell them why we're asking them specifically. 
+  - something they're good at, want to get better at it, or need to improve at it. 
+  - Need want like concept
+  - thought about it carefully, and just a quick assertion of your reasons.
+  - ask for specific acceptance of the responsibility
+3. Ask without giving details.
+  - would you please take over _task_
+  - don't give all the details
+  - they say yes or no, but asking first is better. (80% say yes).
+  - giving full details causes people to listen defensively. 
+  - they said yes, listening actively.
+
+
