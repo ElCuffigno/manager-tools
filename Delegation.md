@@ -69,6 +69,32 @@ Delegation best achieved through relationship power. In principle, best way to d
   - they say yes or no, but asking first is better. (80% say yes).
   - giving full details causes people to listen defensively. 
   - they said yes, listening actively.
-  - if no, ask about their concerns. Affirm. Then see if you can resolve them. But if you get a true no, you're not pushing it. Q
+  - if *no*, ask about their concerns. Affirm. Then see if you can resolve them. But if you get a true no, you're not pushing it. 
+  - This isn't manipulation. It's persuasive power. Assumes you're picking the person for a good reason. 
+  - objectionss are a clue to concerns, you can address concerns while giving details.
+4. Describe task in detail.
+  - describe what's involved in detail while addressing concerns. 
+  - not shy about giving him too much to do. This fuels growth. Want people between comfort and stressed. 
+  - in a world with too little to do, people spend time on the wrong things.
+  - without stress of more to do, won't get direct to drop least important tasks
+5. Deadline, quality and reporting standards
+  - when, how good, 
+6. What do you need from me?
+  - skill and resource needs.
+  - be careful. Avoid reverse delegation. 
+  - they may push things back to you.
+
+Don't be concerned that quality might dip. Maybe it's as bad as your first times at the task, but the organization will survive. 
+
+Making mistakes under your cover.
+
+In a few months, quality will come back up, and you're saving time for you and they'll be ready for their next task. Gotta prepare for promotion. Delegate running meetings and running projects to directs to teach them. 
+
+Have to delegate to grow.
+
+Paired with lots of feedback, coaching. Follow up. Keep pushing people. 
+
+State desire for help. State why you're picking them. Address concerns. Let people fail under your auspices. 
+
 
 
