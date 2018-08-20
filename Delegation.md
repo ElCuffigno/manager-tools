@@ -96,5 +96,10 @@ Paired with lots of feedback, coaching. Follow up. Keep pushing people.
 
 State desire for help. State why you're picking them. Address concerns. Let people fail under your auspices. 
 
+## The Juggling Koan 
+
+**What would an effective manager do?**
+
+
 
 
