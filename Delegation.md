@@ -100,6 +100,43 @@ State desire for help. State why you're picking them. Address concerns. Let peop
 
 **What would an effective manager do?**
 
+Reintroduce the Koan from part 1. 
+
+Delegation is the answer.
+
+May not delegate a small ball if received in this example. 
+
+Gotta know your folks. Know your team. Delegation gives more opportunities for feedback and for coaching. Growth for everyone. 
+
+More work is how most of the grow. 
+
+"If your waiting for the equitable increase of more work for more pay, don't hold your breath."
+
+Very few managers have unethical or opportunistic delegation.
+
+Ability to be ethusiastic when being delegated to is key to helping your relationship with your boss. Think, how would you feel as the delegating manager. 
+
+Slack theory "leave some time for these thing". The guys hate this. Much better to stretch and grow. I have been mentioning this so time to rethink. 
+
+Rigid agile as we're doing it codifies this sometimes. These guys don't like the IT answer. 
+
+"What work are you not going to do?" Is key to time management. Requires knowing what the important work is. 
+
+Prioritize your own work, tell your manager and they'll adjust you if needed.
+
+Because IT has rigidity, they see the first line managers saying "we're full". They understand the standards, but the guys think this is a crutch. 
+
+Delegate big ball only to key no. 2 for you. Some one ready to promote. In context of development and coaching, not delegating off your plate. 
+
+Hiring staff is nothing to be proud of. They're saying want the organization to grow but not the budget to grow. Grow the capabilities of organization to do the same amount of work faster or more next week than the previous week. Humans are elastic and can grow. 
+
+Orgs need profit to grow and take more opportunities. 
+
+
+
+
+
+
 
 
 
