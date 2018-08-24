@@ -132,8 +132,23 @@ Hiring staff is nothing to be proud of. They're saying want the organization to 
 
 Orgs need profit to grow and take more opportunities. 
 
+Pushing back is not a good idea. 
 
+No pride in avoiding legitimate work. 
 
+Protecting people and saying you've only got a certain amount of time isn't a good practice if you want to grow and be promoted. 
+
+Polite declining means back your desk. 
+
+If I have subordinates something they couldn't handle they'd expect the directs to push back. 
+
+*Delegating leaves you with a small of oversight of the delegated tasks.*
+
+There are always things that can be killed at the bottom of the org. Processes and procedures can ossify tasks no one cares about or needs done. 
+
+Is the task recurring? Good to consider before delegation.
+
+Always a good idea to get team on board. Go in with what your think things are going to look like and update, discuss with the team. 
 
 
 
