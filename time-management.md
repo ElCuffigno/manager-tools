@@ -61,3 +61,42 @@ Walks through a more effective way for executives.
 What does this role require of me? What do I need to do to achieve that? Drucker says most effective executives only do 1 super well. some do 2. 3 is 'a circus act." 
 
 How much time are you spending on No. 1?
+
+## Rough Time Analysis
+
+Now we're going to look at your calendar. IF you don't have one, wasting your time, not a professional.
+
+Print last 3 weeks in day view. 1 sheet/day.
+
+Capture start and stop time of work day. (Side note: Don't come in and do email. Morning is best time to do work.)
+
+Review each day in 15 minute incriments, and write down what you did. 
+
+If you don't have notes, write down "nothing". This shows you if you have no one focusing on your time, you can't claim you're following your priorities. 
+
+Take what you did, and see where it breaks into your 5 key priorities.
+
+Add them up, and put % of how you spend your time. 
+
+If you want accuracy, do this in 3 week increments over then next 6 months.
+
+#### Drucker time analysis
+Use assitant to capture everyting you do in 10 minute increments. 
+
+Good way to use your assistant. Could try to do yourself with a timer. 20 minutes is ok, but 10 better. 
+
+Use stopwatch. Irritating, but powerful. 
+
+This is doing it going forward. Little bit irritating, but great data. 
+
+## Schedule your primary responsibility
+
+Pick 1. Put it on your calendar. 
+
+Not critical that you know what you're going to do in each block on your schedule. 
+
+**First week: Two 90 minute blocks for your primary responsibility. Focusing on No. 1 priority only.** 
+
+Don't schedule more than 90 minutes. People will start nibbling away at longer periods. Also, limit of what people can do. 
+
+Not about "More" for work. It's about choosing more effectively. You get paid to get better. That's saying "no" to things, and saying "yes" to the right things. 
