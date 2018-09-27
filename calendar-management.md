@@ -37,3 +37,5 @@ What to put on your calendar:
  
  Email is worst thing you can do with unscheduled time. 
  Many are in culture where email is key, but recommend it's not. 
+
+*Don't wish for longer. Wish for faster.* 
