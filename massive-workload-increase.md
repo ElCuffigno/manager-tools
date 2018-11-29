@@ -38,3 +38,34 @@ Don't want too be in the middle and say no. Implies you're not in the workload c
 Right choice is to assume the right work will get done, but there is some work that won't get done and it's ok.
 
 Determine the right work to do. Leadership challenge is setting the tone to get it done. Believe it's all doable. 
+
+## Episode 2
+
+### Set example of positive mindedness
+
+Whether you believe it or not, act as if it can be done. 
+
+If we don't know it can't be done, it's our task as professionals to assume it can be done. 
+
+## Meet with your team immediately and tell them what you know!
+
+Be open and honest. Ok not to have a plan. Directs are likely scared, definitely scared if manager handles it poorly. 
+
+Meeting in the next hour, call everyone in. Say: We can do this. 
+
+Dampening panic and fear. 
+
+If you can't brief the plan at this meeting, directs will assume you don't have one, so be up front about not having one. Tell them you don't have one but you're all going to work on it together quickly. And if it doesn't work we'll iterate. 
+
+*Tell them we don't need negativity and you won't accept it.*
+
+It's understandable, but don't be negative.
+
+Got to be positive. Even if naturally pessimistic. 
+
+Could do this in a series of smaller group meetings. Hand out agenda for any managers to give to there directs. 
+
+Can't wait until you have a full plan together. 
+
+
+
