@@ -92,7 +92,7 @@ Shotgun feedback at a team meeting is 100% bad.
 Managers bear more of the burden, but you don't need to take this home. Keep your worries outside. (worry tree)
 
 ## Part 3
-### Don't assume everyhting can't be done
+### Don't assume everything can't be done
 
 Don't start with a limited mindset. Start out with mindset that it can be done and there is a way. 
 
@@ -106,8 +106,79 @@ You can find creative solutions.
 
 Need to massage anger of internal customers when numbers are dipping due to vacations, etc. 
 
+### Believe it CAN be done.
 this is possible if you start with the attitude that you can be done. 
 
 Trying can get you noticed, positively. It's a good example for the company, shows confidence for your internal management. 
 
 "Be stupid enough or brave enough to set a goal."
+
+## Part 4
+Review [Assumptive goal setting cast}https://www.manager-tools.com/2010/12/assumptive-goal-setting]
+
+First meeting you're goign to have it about the future and new ways to do things.
+
+Don't need data on existing ways to do this review. Don't start with where you are
+
+2. Play a mental game that you've already solved the problem. 
+  
+  Have them brainstorm with you, assuming they've already won/defeated the problem. 
+  
+  Ask - How did we get here?
+  
+  **What would have to happen for us to get here?**
+  
+### Decide what you're willing to get in trouble for
+
+Can't eliminate risk completely. 
+
+Gotta delegate things to the floor. Can't do everything.
+
+Think with your team, what can we drop to the floor? The manager takes responsibilty for what's dropped on the floow. "Crisis Management Triage". 
+
+They bet no one will notice. If someone does notice, pick back up the ones you still need to do, but you'll still have dropped a lot. 
+
+### Measure More
+Measure how the new process is working.
+
+If we have 5 new things, let's have data on all 5 so we can compare and move forward with the most results. 
+
+With data to back it up, people might be more accepting of your misses. 
+
+Good for the manager to do. could be delegated to top performer. 
+
+1. What are we measuring? 
+   - Charts?
+   - Strings?
+   - Quality?
+   - Batch? 
+2. Who will be the most likely conusmer of these measure? 
+   - What do they want?
+   - How do they consume data?
+     - If your boss only wants one big number, give one big number!
+   - Helps for reporting step. People may not beleive you. 
+   
+### Report more
+
+If you measure it, report it. 
+ - Post successes and failures
+ - Have team create the reports
+ - Post these publically
+
+If you are doing something new, and not reporting it, people will think you're hiding it. 
+
+Definition of work is the work and the reporting the work being done. 
+
+Be able to talk through successes and failures. This isn't confidence, it's professionalism. 
+
+Be prepared for people not to have read it, but they might be interested in it when you breif them. Successes might be better conveyed face to face. 
+
+### Never give in
+
+You'll have set backs. Your energy will flag. you'll lose face. But, don't give up. 
+
+Set example of energy and positivity.
+
+Be a leader.
+  
+
