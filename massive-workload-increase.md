@@ -114,7 +114,7 @@ Trying can get you noticed, positively. It's a good example for the company, sho
 "Be stupid enough or brave enough to set a goal."
 
 ## Part 4
-Review [Assumptive goal setting cast}https://www.manager-tools.com/2010/12/assumptive-goal-setting]
+Review [Assumptive goal setting cast|https://www.manager-tools.com/2010/12/assumptive-goal-setting]
 
 First meeting you're goign to have it about the future and new ways to do things.
 
