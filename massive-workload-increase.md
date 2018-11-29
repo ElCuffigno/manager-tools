@@ -70,3 +70,23 @@ Can't wait until you have a full plan together.
 Don't be part of negativity. Do not join in with any complaining. 
 
 People may take shots at you from other departments/senior people. Stand up and take the comments. (If they're right, but said with venom... not just attacks). 
+
+Don't complain to directs.
+
+Reminds me of "Grips go up the chain of command, not down." 
+
+Talk about the postitives with your boss. Don't take off the mask to show them that everyhing's on fire. This is a pretty rare need where you need to keep a brave face and convey real problems to boss. 
+
+Behave as a professional all the time. 
+
+People are going to complain, but you don't have to support, encourage, or model it.
+
+The hard part is, you need to address the negativity and ask people to quit it. 
+
+If you've got a relationship built, doing one on ones and giving feedback, you can give some negative feedback to get people to knock off negativity. 
+
+You can also mention it during one-on-ones. 
+
+Shotgun feedback at a team meeting is 100% bad. 
+
+Managers bear more of the burden, but you don't need to take this home. Keep your worries outside. (worry tree)
