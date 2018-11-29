@@ -6,18 +6,18 @@ Dismissive of HR and concerns about mental health.
 
 ## 11 steps
 
-1) Make the right choices 
-2) Immediate example of positivity
-3) don't complain or blame
-4) Don't whine (with your directs)
-5) Don't tolerate whining. Period.
+1. Make the right choices 
+2. Immediate example of positivity
+3. don't complain or blame
+4. Don't whine (with your directs)
+5. Don't tolerate whining. Period.
    Blowing off steam together shouldn't be in playbook
-6) Don't assume things can't be done (? May have missed this one
-7) assume things can be done. (Picture right future)
-8) Decide what you're willing to get in trouble for. (Be clear on priorities)
-9) measure more
-10) report more
-11) Recognize this is a marathon not a sprint. It will go on longer than you think. 
+6. Don't assume things can't be done (? May have missed this one
+7. assume things can be done. (Picture right future)
+8. Decide what you're willing to get in trouble for. (Be clear on priorities)
+9. measure more
+10. report more
+11. Recognize this is a marathon not a sprint. It will go on longer than you think. 
 
 ## More details! 
 
@@ -67,5 +67,6 @@ Could do this in a series of smaller group meetings. Hand out agenda for any man
 
 Can't wait until you have a full plan together. 
 
+Don't be part of negativity. Do not join in with any complaining. 
 
-
+People may take shots at you from other departments/senior people. Stand up and take the comments. (If they're right, but said with venom... not just attacks). 
