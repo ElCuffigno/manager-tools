@@ -90,3 +90,24 @@ You can also mention it during one-on-ones.
 Shotgun feedback at a team meeting is 100% bad. 
 
 Managers bear more of the burden, but you don't need to take this home. Keep your worries outside. (worry tree)
+
+## Part 3
+### Don't assume everyhting can't be done
+
+Don't start with a limited mindset. Start out with mindset that it can be done and there is a way. 
+
+"I have no proof, but I believe it can be done" increases chances of being effective. 
+
+Example of changing from driving to airport to taking cab and getting time back. 
+
+You can find creative solutions.
+- Possible minor reduction in quality to get more out
+- Have lower-skilled tasks batched and performed quickly by other staff
+
+Need to massage anger of internal customers when numbers are dipping due to vacations, etc. 
+
+this is possible if you start with the attitude that you can be done. 
+
+Trying can get you noticed, positively. It's a good example for the company, shows confidence for your internal management. 
+
+"Be stupid enough or brave enough to set a goal."
