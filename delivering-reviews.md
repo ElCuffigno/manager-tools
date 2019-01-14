@@ -141,6 +141,7 @@ Managers: DO NOT have only the behavioirs on the form as evidence. You need writ
 - No phones
 - Stcik to agenda
 - Extra meetings fine if needed.
+- No comparisons to other employees
 3. Core Message
 - See above!
 
