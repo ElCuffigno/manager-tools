@@ -146,4 +146,23 @@ Managers: DO NOT have only the behavioirs on the form as evidence. You need writ
 
 ## 8 How to behave
 
+Smile, use first names. Go into it believing it will go well. 
 
+Stay calm. You're responsible for how you feel. 
+
+Umbrella story, guy tapped by umbrella. "he poked you with am umbrella. you got mad all by yourself."
+
+NEVER INTERRUPT DIRECT. Make eye contact and use active listening.
+
+Medicine ball technique
+- When someone attacks, accept and don't yell. Give feedback on how they behave. Positively or negatively. 
+
+Feel, felt, found - Sales technique
+
+I see how you feel...
+
+I felt that way too when...
+
+Here's what I found...
+
+If you behave calmly and rationally, they will calm down and listen to your recommendations for next year. You're trying to build a relationship with them even when they're tearing it down. 
