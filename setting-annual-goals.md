@@ -133,4 +133,6 @@ Tangible = softer than time based. Something you can 'feel or touch'. But with n
 
 
 
-## 
+## John & the Gate Guards 
+
+Measuring gate guards by what people like. 1) timeliness and 2) courtesy. Found a proxy. 
